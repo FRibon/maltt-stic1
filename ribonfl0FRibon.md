@@ -1,1 +1,0 @@
-# maltt-stic1
